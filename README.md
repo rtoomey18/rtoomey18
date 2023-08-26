@@ -7,8 +7,8 @@
 -can't see the tent she she just be see
 -
 -    on ... cycle DC book hub g
-- 📫 How to reach me ... CC 65364578 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview l have numbing cc in vin b vin cc 13:;&-+-7&
+- 📫 How to reach me ... CC 65364578 good luck Harvard. Whitney Bulger southie projects
 
-ink to take a look at your changes.
+ l have numbing in my head 
+ cc in vin b vin cc 1.
 --->
